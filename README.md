@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @bakha0barzan
-- 👀 I’m interested in Coding, Travelling.
+- 👀 I’m interested in Coding, Travelling and etc.
 - 🌱 I’m currently learning Computer Coding, ML, AI and etc.
 - 💞️ I’m looking to collaborate on any project as a volunteer.
 - 📫 How to reach me, contact me via my email "bakha.barzan95@gmail.com".
